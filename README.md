@@ -1,4 +1,4 @@
-# quick-ip-changer-22-00-59'
+# quick-ip-changer-22-00-59
 
 ![ip-address](https://gcdnb.pbrd.co/images/4nWhHrY0Fol2.png)
 
